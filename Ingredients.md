@@ -1,0 +1,9 @@
+- 6 bread slices
+- 3 teaspoon butter some more to toast
+- Sandwich masala 
+- 1 small onion cut into thin circles
+- 1 potato boiled and cut into rounds
+- 1 to mato cut into circles
+- ½ big green pepper cut into rounds
+- 3-4 tablespoons coriander-mint chutney [homemade or store bought]
+- 2 cheese slices [i used amul cheese slice]
